@@ -1,3 +1,3 @@
 # Business
 man
-asdf
+https://sites.google.com/view/closertothetruth/home
